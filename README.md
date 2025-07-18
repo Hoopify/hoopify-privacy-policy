@@ -1,0 +1,1 @@
+# hoopify-privacy-policy
